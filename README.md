@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Dmytro
+- 👀 I’m interested in discord coding
